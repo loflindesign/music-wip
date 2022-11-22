@@ -1,2 +1,8 @@
-# music-wip
-PREDICTABLE
+```
+VISIONARY
+FREE PASS (feat. HCP)
+YESTERDAY
+WHEREFORE (feat. TBD)
+BLUETEETH
+CZECHS UP (feat. TBD)
+```
